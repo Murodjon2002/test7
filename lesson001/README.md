@@ -1,0 +1,1 @@
+burepositioriya aslidd  shunchaki yaratiladi
